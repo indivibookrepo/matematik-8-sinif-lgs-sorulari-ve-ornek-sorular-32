@@ -1,0 +1,1 @@
+# matematik-8-sinif-lgs-sorulari-ve-ornek-sorular-32
